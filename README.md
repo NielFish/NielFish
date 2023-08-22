@@ -29,7 +29,7 @@ Soy un apasionado desarrollador de software con un enfoque especial en diseño y
 
 🌐 ¡Encuéntrame en las redes! 🌐
 
-- Instagram: [@lofishniel]([@lofishniel](https://www.instagram.com/lofishniel/))
+- Instagram: [@lofishniel](https://www.instagram.com/lofishniel/)
 - Sitio Web: [www.tusitio.com](URL_DE_TU_SITIO_WEB)
 
 ¡Gracias por visitar mi perfil! ¡Espero que disfrutes explorando mis proyectos tanto como yo disfruto creándolos! 😄🎉
